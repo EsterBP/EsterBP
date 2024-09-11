@@ -1,9 +1,11 @@
 ***
-## Thanks for visiting my page! Your Welcome! :) 
+´´´
+## Thanks for visiting my page! Your Welcome! :)  
+´´´
 ***
 
 # 💫 About Me:
-🔭 I’m currently working on my GitHub Profile<br>👯 I’m looking to collaborate on small online projects<br>🤝 I’m looking and moving forward<br>🌱 I’m currently learning the basics again<br>💬 I'm looking for questions I can ask<br>⚡ Fun fact : I'm trying to be a more bright person
+🔭 I’m currently working on my GitHub Profile<br>👯 I’m looking to collaborate on small online projects<br>🤝 I’m looking and moving forward<br>🌱 I’m currently learning the basics again<br>💬 I'm looking for questions I can ask<br>⚡ Find more on my old profile: 
 
 
 ## 🌐 Socials:
